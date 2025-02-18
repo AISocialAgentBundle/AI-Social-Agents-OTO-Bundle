@@ -1,4 +1,4 @@
-# AI Social Agents OTO Fast Pass Bundle + Bonus
+# AI Social Agents OTO All Fast Pass Bundle + Bonus
 
 <!-- wp:paragraph -->
 <p>Social media communication is no longer an unfamiliar strategy. With the rise of multiple platforms, businesses now have more opportunities to expand their marketing efforts. Each social network offers unique customer bases, insights, and marketing approaches.</p>
